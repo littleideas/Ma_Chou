@@ -1,2 +1,3 @@
 # Ma_Chou
-Next Will Be Better
+接下来会更好
+只是为了兴趣
